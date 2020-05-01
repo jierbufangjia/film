@@ -1,9 +1,9 @@
 # 6号巴士站
 :sunglasses::sunglasses:脱 地ji址er发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【地址一】 ：https://vttv66.com/
+:heart: :point_right: 【地址一】 ：<a href="https://vttv66.com/">https://bus6.cc</a>
 ------
-:heart: :point_right: 【地址二】 ：https://vttv66.com/
+:heart: :point_right: 【地址二】 ：<a href="https://vttv66.com/">https://bus6.cc</a>
 ------
 :heart: :point_right: 【potato】 ：6号巴士站
 ------
