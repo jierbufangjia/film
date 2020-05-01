@@ -1,11 +1,11 @@
-# jier
+# 6号巴士站
 :sunglasses::sunglasses:脱 地ji址er发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【地址一】 ：http://www.4k1080.com
+:heart: :point_right: 【地址一】 ：https://vttv66.com/
 ------
-:heart: :point_right: 【地址二】 ：http://www.onedyy.com
+:heart: :point_right: 【地址二】 ：https://vttv66.com/
 ------
-:heart: :point_right: 【potato】 ：jierbufangjia
+:heart: :point_right: 【potato】 ：6号巴士站
 ------
 :heart: :point_right: 【邮箱联系方式】 ：jierbufangjia@gmail.com
 ------
