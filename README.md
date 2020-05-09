@@ -5,9 +5,9 @@
 ------
 :heart: :point_right: 【地址二】 ：<a href="https://vttv66.com/">bus6.cc</a>
 ------
-:heart: :point_right: 【邮箱联系方式】 ：jierbufangjia@gmail.com
-------
 :heart: :point_right: 【telegram】 ：https://t.me/bus6cc
+------
+:heart: :point_right: 【邮箱联系方式】 ：jierbufangjia@gmail.com
 ------
 :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 ==
