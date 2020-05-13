@@ -7,10 +7,10 @@
 ------
 :heart: :point_right: 【telegram】 ：https://t.me/bus6cc
 ------
-:heart: :point_right: 【邮箱联系方式】 ：jierbufangjia@gmail.com
+:heart: :point_right: 【邮箱联系方式】 ：bus6cc@gmail.com
 ------
 :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 ==
 
 
-:e-mail: __邮箱联系方式: jierbufangjia@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
+:e-mail: __邮箱联系方式: bus6cc@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
